@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Spatial Analysis
 - 📫 How to reach me @hampsonclarke123@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: My homr city Perth, Australia was the only city open on NYE during Covid. I would of been one of the only people Djing a nye party !! :( 
+- ⚡ Fun fact: My home city Perth, Australia was the only city open on NYE during Covid. I would of been one of the only people Djing a nye party !! :( 
 
 <!---
 layer3tekka/layer3tekka is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
